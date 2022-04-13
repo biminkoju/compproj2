@@ -17,3 +17,4 @@ school projet of computer subject
     6) duplicated project work will not be acceptable
 
 the total marks for projext work is 20
+# you cannot copy it without my permission i will sue your ass off
